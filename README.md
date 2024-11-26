@@ -1,1 +1,1 @@
-Incomplete version of my curriculum vitae.
+Old version of my curriculum vitae.
