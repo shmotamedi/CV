@@ -1,1 +1,1 @@
-Simplified version of my CV.
+Simplified version of my curriculum vitae.
