@@ -1,1 +1,1 @@
-Condensed version of my CV.
+Condensed CV version.
