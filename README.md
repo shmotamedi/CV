@@ -1,1 +1,1 @@
-Compressed CV version!
+Compressed version of CV!
