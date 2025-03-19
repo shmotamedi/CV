@@ -1,1 +1,1 @@
-Compressed version of CV!
+Compressed version of Curriculum Vitae!
